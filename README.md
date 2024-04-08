@@ -527,3 +527,6 @@ context: achava bible study, playing smash bros (the nintendo game of couser), s
 \- jacob noodle sandwich, on geometry dash
 
 ---
+> I support bullying Edina children
+
+\- THE scott oberg
