@@ -532,3 +532,7 @@ context: achava bible study, playing smash bros (the nintendo game of couser), s
 \- THE scott oberg
 
 ---
+> you know cus im a beaner? - Athaliah 
+> whats that - rachel
+> I though that was a person who smoked weed and wore a dobby hat.
+\- Having to count beans for a lab 
