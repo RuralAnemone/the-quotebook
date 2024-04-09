@@ -536,7 +536,10 @@ context: achava bible study, playing smash bros (the nintendo game of couser), s
 >
 > whats that - rachel
 >
-> I though that was a person who smoked weed and wore a dobby hat.
+> I though that was a person who smoked weed and wore a dobby hat. - Rachel 
 
 \- Having to count beans for a lab 
 ---
+>i'm so white that all sunlight reflects off of me and blinds everyone who looks at me - Isaiah
+
+\- Found this old quote from who knows when 
