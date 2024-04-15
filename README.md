@@ -544,3 +544,5 @@ context: achava bible study, playing smash bros (the nintendo game of couser), s
 >i'm so white that all sunlight reflects off of me and blinds everyone who looks at me - Isaiah
 
 \- Found this old quote from who knows when 
+
+---
