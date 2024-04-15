@@ -512,7 +512,7 @@ context: achava bible study, playing smash bros (the nintendo game of couser), s
 > 
 > They have a strong ego,
 > 
-> They are too loud I think."
+> They are too loud I think.
 
 \- Tour guide in Vienna (via bek)
 
@@ -532,7 +532,7 @@ context: achava bible study, playing smash bros (the nintendo game of couser), s
 \- THE scott oberg
 
 ---
-Having to count beans for a lab 
+Having to count beans for a lab:
 
 > Athaliah: 
 > > you know cus im a beaner? 
@@ -542,9 +542,13 @@ Having to count beans for a lab
 > > I though that was a person who smoked weed and wore a dobby hat. - Rachel
 
 ---
->i'm so white that all sunlight reflects off of me and blinds everyone who looks at me - Isaiah
+Found this old quote from who knows when:
 
-\- Found this old quote from who knows when 
+>i'm so white that all sunlight reflects off of me and blinds everyone who looks at me 
+
+\- Isaiah
 
 ---
-> 
+> your hair smells like dog silk
+
+\- the bean
