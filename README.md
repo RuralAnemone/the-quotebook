@@ -532,13 +532,14 @@ context: achava bible study, playing smash bros (the nintendo game of couser), s
 \- THE scott oberg
 
 ---
-> you know cus im a beaner? - Athaliah 
->
-> whats that - rachel
->
-> I though that was a person who smoked weed and wore a dobby hat. - Rachel
+Having to count beans for a lab 
 
-\- Having to count beans for a lab 
+> Athaliah: 
+> > you know cus im a beaner? 
+>
+> rachel:
+> > whats that?
+> > I though that was a person who smoked weed and wore a dobby hat. - Rachel
 
 ---
 >i'm so white that all sunlight reflects off of me and blinds everyone who looks at me - Isaiah
