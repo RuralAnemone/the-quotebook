@@ -541,7 +541,7 @@ Having to count beans for a lab:
 >
 > rachel:
 > > whats that?
-> > I though that was a person who smoked weed and wore a dobby hat. - Rachel
+> > I though that was a person who smoked weed and wore a dobby hat.
 
 ---
 Found this old quote from who knows when:
