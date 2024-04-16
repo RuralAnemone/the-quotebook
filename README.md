@@ -554,3 +554,11 @@ Found this old quote from who knows when:
 > your hair smells like dog silk
 
 \- the bean
+---
+> Sarena you look like a fetus
+
+\- Heidi
+---
+> Wheres the grooming????
+
+\- Isaac
