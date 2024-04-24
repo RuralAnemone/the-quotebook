@@ -556,16 +556,6 @@ Found this old quote from who knows when:
 \- the bean
 
 ---
-> Sarena you look like a fetus
-
-\- Heidi
-
----
-> Wheres the grooming????
-
-\- Isaac
-
----
 > you guys are like jesse and walter in the computer science field
 
 \- athaliah, on brady and I giving the robot AIDS
