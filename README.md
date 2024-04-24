@@ -558,6 +558,6 @@ Found this old quote from who knows when:
 ---
 > you guys are like jesse and walter in the computer science field
 
-\- athaliah, on brady and I giving the robot AIDS
+\- athaliah, on brady and I giving the robot [AIDS](https://github.com/FRC3407/outreach/blob/dev-isaiah/src/main/docs/AIDS.md)
 
 ---
