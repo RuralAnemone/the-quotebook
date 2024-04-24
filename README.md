@@ -561,3 +561,9 @@ Found this old quote from who knows when:
 \- athaliah, on brady and I giving the robot [AIDS](https://github.com/FRC3407/outreach/blob/dev-isaiah/src/main/docs/AIDS.md)
 
 ---
+
+> what if we bring your mom and makeout aggressively
+
+ \- White tamele
+
+ ---
