@@ -33,7 +33,7 @@ context can also go down here
 
 ```
 
-<details><summary>...which looks like this<summary>
+<details><summary>...which looks like this</summary>
 
 context, if necessary:
 
