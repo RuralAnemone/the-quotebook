@@ -574,3 +574,17 @@ Found this old quote from who knows when:
 
 ---
 
+> Real Gs move in silence. Like lasagna. 
+> 
+> [...]
+> 
+> You've never heard that? Really?
+> 
+> It's a motto I live by.
+
+\- Chad Schlosser
+
+> I move like a one-man band; I feel like every time I take a step an accordion plays.
+
+
+\- 
