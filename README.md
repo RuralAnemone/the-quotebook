@@ -584,10 +584,17 @@ Found this old quote from who knows when:
 
 \- Chad Schlosser
 
-> I move like a one-man band; I feel like every time I take a step an accordion plays.
+> I move like a one-man band; I feel like every time I take a step an accordion plays.z
 
 
 \- Julia
+
+---
+
+> Have you ever had to pee so bad that when you relieve yourself, your kidneys hurt?
+> one of the best feelings ever
+
+\- Hairrell
 
 ---
 
