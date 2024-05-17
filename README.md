@@ -598,3 +598,9 @@ Found this old quote from who knows when:
 
 ---
 
+> Hey man how's your day going? [...] Oh, you're one of them silent pissers? [...] Yeah, I used to be too...
+
+\- some guy in the urinal next to me
+
+---
+
