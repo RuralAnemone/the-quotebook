@@ -610,3 +610,8 @@ Found this old quote from who knows when:
 
 ---
 
+> MEGAMIND IS JUMPING OVER MY LOG
+
+\- Isaac
+
+--- 
