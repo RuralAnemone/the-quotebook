@@ -615,3 +615,19 @@ Found this old quote from who knows when:
 \- Isaac
 
 --- 
+
+> its a local orgy
+
+\- white tamele 
+
+---
+
+> Girls are always pulling something out of their ass
+>
+\- Athaliah 
+
+> yeah dicks
+
+\- white tamale 
+
+---
