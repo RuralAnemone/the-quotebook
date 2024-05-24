@@ -631,3 +631,11 @@ Found this old quote from who knows when:
 \- white tamale 
 
 ---
+caveman-esque:
+
+> Two penis does not make sex
+
+\- Jason (church)
+
+---
+
