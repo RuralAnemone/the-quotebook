@@ -618,12 +618,12 @@ Found this old quote from who knows when:
 
 > its a local orgy
 
-\- white tamele 
+\- white tamele (in what context did I say this)
 
 ---
 
 > Girls are always pulling something out of their ass
->
+
 \- Athaliah 
 
 > yeah dicks
@@ -644,3 +644,7 @@ caveman-esque:
 \- Aera
 
 --- 
+
+> I had a whiskey sour. I didn't like it.
+
+\- my Nana, on a coconut she mailed to my dad from her vacation in Hawai
