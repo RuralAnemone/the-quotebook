@@ -647,4 +647,6 @@ caveman-esque:
 
 > I had a whiskey sour. I didn't like it.
 
-\- my Nana, on a coconut she mailed to my dad from her vacation in Hawai
+\- my Nana, on a coconut she mailed to my dad from her vacation in Hawaiʻi
+
+---
