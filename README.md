@@ -635,7 +635,7 @@ caveman-esque:
 
 > Two penis does not make sex
 
-\- Jason (church)
+\- Top Bunk Jason
 
 ---
 
@@ -645,8 +645,17 @@ caveman-esque:
 
 --- 
 
+<<<<<<< HEAD
 > I had a whiskey sour. I didn't like it.
 
 \- my Nana, on a coconut she mailed to my dad from her vacation in Hawaiʻi
 
 ---
+=======
+> where are the Hooters? I WANT ALL THE HOOTERS 
+
+\- bek
+
+---
+
+>>>>>>> c944990 (add bek quote)
