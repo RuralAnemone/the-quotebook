@@ -219,7 +219,8 @@ I CAN'T BELIEVE YOU QUOTED ME ON THAT?!?!?!
 
 ---
 
-> you actually can’t get an std after the age of 21
+> you actually can’t get a        run: yarn build
+n std after the age of 21
 
 \- tommy sarcastically pretending to be omniscient while talking about getting physicals
 
@@ -657,3 +658,6 @@ caveman-esque:
 
 ---
 
+> I'm gonna butter my finger and then finger your butt
+
+\- anna, after buying a butterfinger
