@@ -571,7 +571,7 @@ Found this old quote from who knows when:
 
 > these words have never come out of my mouth before, but I'm more focused on the crotchless part
 
-\- Mr. Bennett
+\- Mr. Bennett, on someone's short story
 
 ---
 
@@ -585,8 +585,7 @@ Found this old quote from who knows when:
 
 \- Chad Schlosser
 
-> I move like a one-man band; I feel like every time I take a step an accordion plays.z
-
+> I move like a one-man band; I feel like every time I take a step an accordion plays.
 
 \- Julia
 
