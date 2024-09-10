@@ -661,3 +661,9 @@ caveman-esque:
 > I'm gonna butter my finger and then finger your butt
 
 \- anna, after buying a butterfinger
+
+---
+
+> hes a runner hes a track star, he runs away when he gets hard
+
+\- cora, at worship night seeing Isaiah stretch 
