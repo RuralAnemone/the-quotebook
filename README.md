@@ -669,4 +669,13 @@ caveman-esque:
 
 ---
 
+> I'm making friends with a bunch of freshmen - bean
+> 
+> yeah cus you're not weird, you're normal - charlie
+> 
+> Really??? THANK YOU! - bean
+> 
+> Yes you are a very normal person who can be trusted with people younger than you - charlie
+
+\- Charlie and Athaliah talking about making friends at MVHS
 
