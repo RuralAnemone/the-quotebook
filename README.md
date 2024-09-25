@@ -679,3 +679,9 @@ caveman-esque:
 
 \- Charlie and Athaliah talking about making friends at MVHS
 
+---
+
+> AAAAAAH MY KNEES!!! IM BEING MOLESTED BY A SMALL MIDGET
+>
+\- Heidi after sarena was rubbing her knees during the fire drill
+
