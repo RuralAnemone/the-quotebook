@@ -682,9 +682,11 @@ caveman-esque:
 ---
 
 > AAAAAAH MY KNEES!!! IM BEING MOLESTED BY A SMALL MIDGET
->
+
 \- Heidi after sarena was rubbing her knees during the fire drill
 
 ---
 
-> 
+> \[imitating a cat\] mew
+
+\- my mother, after being told that she had to mew (her jawline) (this was in context trust me)
