@@ -685,3 +685,20 @@ caveman-esque:
 >
 \- Heidi after sarena was rubbing her knees during the fire drill
 
+---
+
+> Lets go ass for ass, pull your pants down! - Alex
+
+> Go inch per inch - Alex
+
+> Whats the volume of your ass cheek? - Alex
+
+> Whats the girth? - sam
+
+> Come on pull your pants down I wanna see some action! - Alex
+>
+\- Sam and Alex during AP world talking about who as more cake
+
+---
+
+
