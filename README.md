@@ -687,15 +687,14 @@ caveman-esque:
 
 ---
 
-<<<<<<< HEAD
 > \[imitating a cat\] mew
 
 \- my mother, after being told that she had to mew (her jawline) (this was in context trust me)
-=======
-> Lets go ass for ass, pull your pants down! - Alex
 
-> Go inch per inch - Alex
+---
 
+> Lets go ass for ass, pull your pants down!
+> Go inch per inch
 > Whats the volume of your ass cheek? - Alex
 
 > Whats the girth? - sam
@@ -705,6 +704,3 @@ caveman-esque:
 \- Sam and Alex during AP world talking about who as more cake
 
 ---
-
-
->>>>>>> 7d87dccbc653542e9e3d2cf8af5861a049de43ed
