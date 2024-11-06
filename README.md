@@ -695,12 +695,19 @@ caveman-esque:
 
 > Lets go ass for ass, pull your pants down!
 > Go inch per inch
-> Whats the volume of your ass cheek? - Alex
+> Whats the volume of your ass cheek?
 
-> Whats the girth? - sam
+\- Alex
 
-> Come on pull your pants down I wanna see some action! - Alex
->
-\- Sam and Alex during AP world talking about who as more cake
+> Whats the girth?
+
+\- sam
+
+> Come on pull your pants down I wanna see some action!
+
+\- Alex
+
+Sam and Alex during AP world talking about who as more cake
 
 ---
+
