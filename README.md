@@ -711,3 +711,10 @@ Sam and Alex during AP world talking about who as more cake
 
 ---
 
+> you know if this was 18th century China you'd all be cockroaches
+
+ \- Tengis in APWH class
+
+---
+
+
