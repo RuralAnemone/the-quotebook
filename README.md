@@ -717,4 +717,8 @@ Sam and Alex during AP world talking about who as more cake
 
 ---
 
+> Even demons can look normal
 
+\- my dad 
+
+---
