@@ -618,7 +618,7 @@ Found this old quote from who knows when:
 
 > its a local orgy
 
-\- white tamele (in what context did I say this)
+\- white tamele (in what context did I say this) idk 
 
 ---
 
@@ -722,3 +722,8 @@ Sam and Alex during AP world talking about who as more cake
 \- my dad 
 
 ---
+
+> Maybe you should be in the slave trade
+
+\- heidi 
+Talking about beauty pagents 
