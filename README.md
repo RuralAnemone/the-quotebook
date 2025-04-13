@@ -726,4 +726,13 @@ Sam and Alex during AP world talking about who as more cake
 > Maybe you should be in the slave trade
 
 \- heidi 
+
 Talking about beauty pagents 
+
+---
+
+> I'd support Technoblade over George Floyd who died of drug dealer
+
+\- jellybean
+
+---
