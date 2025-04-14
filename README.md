@@ -743,3 +743,7 @@ Talking about beauty pagents
 
 ---
 
+> If I had one of those perfect belly buttons I'd never wear clothes
+
+\- Red head Erica from school 
+
