@@ -747,3 +747,12 @@ Talking about beauty pagents
 
 \- Red head Erica from school 
 
+---
+
+> This Sunday would be a great day to drug [sic] someone to church!
+
+\- Pastor Nathaniel Paul Ruch
+
+---
+
+
