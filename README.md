@@ -727,3 +727,25 @@ Sam and Alex during AP world talking about who as more cake
 
 \- heidi 
 Talking about beauty pagents 
+
+---
+
+> Have you ever been touched by your boyfriend?
+
+> No
+
+> You're missing out (:
+> WAIT NO THAT'S NOT WHAT I MEANT--
+
+ *too late you're in the quotebook (:* 
+
+\- my sisters
+
+---
+
+> do your balls need to get sprayed?
+> ... is it sprayed or spayed?
+
+> it's sprayed
+
+> DO YOUR BALLS NEED TO GET SPAYED??
