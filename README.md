@@ -726,6 +726,7 @@ Sam and Alex during AP world talking about who as more cake
 > Maybe you should be in the slave trade
 
 \- heidi 
+
 Talking about beauty pagents 
 
 ---
@@ -749,3 +750,31 @@ Talking about beauty pagents
 > it's sprayed
 
 > DO YOUR BALLS NEED TO GET SPAYED??
+
+---
+
+> I'd support Technoblade over George Floyd who died of drug dealer
+
+\- jellybean
+
+---
+
+> Moses was very humble, more humble than any other person on earth!
+
+\- Moses (Numbers 12:3)
+
+---
+
+> If I had one of those perfect belly buttons I'd never wear clothes
+
+\- Red head Erica from school 
+
+---
+
+> This Sunday would be a great day to drug [sic] someone to church!
+
+\- Pastor Nathaniel Paul Ruch
+
+---
+
+
