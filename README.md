@@ -782,4 +782,17 @@ Talking about beauty pagents
 \- athaliah on a date
 
 ---
+> cellos you got be more forceful, stronger(mrs.Arnold).... 
+>
+> ....girthier - Abby
+
+> YES EARTHIER -Mrs arnold
+
+>no girthier as in GIRTH -abby
+
+>OOOOH GIRTHIER, even better - Mrs Arnold
+
+\- mrs arnold and abby going back and forth about the miscommunication during orchestra
+
+---
 
