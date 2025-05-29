@@ -598,7 +598,7 @@ Found this old quote from who knows when:
 
 ---
 
-> Hey man how's your day going? [...] Oh, you're one of them silent pissers? [...] Yeah, I used to be too...
+> Hey man how's your day going? \[...\] Oh, you're one of them silent pissers? \[...\] Yeah, I used to be too...
 
 \- some guy in the urinal next to me
 
@@ -771,7 +771,7 @@ Talking about beauty pagents
 
 ---
 
-> This Sunday would be a great day to drug [sic] someone to church!
+> This Sunday would be a great day to drug \[sic\] someone to church!
 
 \- Pastor Nathaniel Paul Ruch
 
@@ -796,3 +796,6 @@ Talking about beauty pagents
 
 ---
 
+> keep jorking my cake
+
+\- me on a date
