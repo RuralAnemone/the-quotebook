@@ -751,6 +751,8 @@ Talking about beauty pagents
 
 > DO YOUR BALLS NEED TO GET SPAYED??
 
+sarena vs athaliah
+
 ---
 
 > I'd support Technoblade over George Floyd who died of drug dealer
@@ -799,3 +801,18 @@ Talking about beauty pagents
 > keep jorking my cake
 
 \- me on a date
+
+---
+
+>bek: what are you doing? 
+
+>me: its called holding your breath but with extra steps and tickly lips
+
+\- me breathing in and out of a balloon
+
+---
+
+>i need more clothes with pants
+
+\- anna crandall (via bek)
+
