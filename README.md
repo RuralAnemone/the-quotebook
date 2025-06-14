@@ -816,3 +816,11 @@ sarena vs athaliah
 
 \- anna crandall (via bek)
 
+---
+
+> it's easier to do it on the floor than the table. I've done it a bunch on the floor
+
+\- cooper <!-- eats paper -->
+
+---
+
