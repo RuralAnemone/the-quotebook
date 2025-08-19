@@ -66,7 +66,7 @@ later:
 
 ---
 
-referring to [Brady Bangasser](mailto:bradybbangasser@gmail.com):
+referring to Brady Bangasser:
 
 > brady uhhhh ball licker??? idk
 
@@ -146,7 +146,7 @@ hayley to noah (they’re a couple):
 
 > you may be wearing the pants, but I got the brain. together we make this abomination:
 > 
-> ![](https://lh7-us.googleusercontent.com/rPOZlTHSF5FUezYqaVbupvc3kQsiL28442OFIpXi-V34B0Ii80lVZXDsVm6t4KxfRI2Zz1Hpd8uo_v5JzLzao2QRtJ4tM06tjo6uDm7Oj8b951gk1nugpZjcEc1G8E_Xd_fp2LVPLd3gDarmSjes67w)
+> ![if this image doesn't load it's up to your imagination (:](https://lh7-us.googleusercontent.com/rPOZlTHSF5FUezYqaVbupvc3kQsiL28442OFIpXi-V34B0Ii80lVZXDsVm6t4KxfRI2Zz1Hpd8uo_v5JzLzao2QRtJ4tM06tjo6uDm7Oj8b951gk1nugpZjcEc1G8E_Xd_fp2LVPLd3gDarmSjes67w)
 
 \- athaliah
 
@@ -213,14 +213,13 @@ I CAN'T BELIEVE YOU QUOTED ME ON THAT?!?!?!
 
 💀💀💀💀💀💀💀💀💀💀💀💀💀💀💀💀💀💀💀💀💀💀💀💀💀💀💀💀💀💀💀💀💀💀💀
 
-![](https://lh7-us.googleusercontent.com/CCK8uR6dVz5gluENDINy9b5PjdvoJYJpeUPQE9PF15T2pAaNCelMsHtCIMzbpB8KJ-KFdJ57W0iqWTwwm_RuTMz0gAChoYJAlhqGhcu-Ei--Z1e2yrPPQCntFhZssujcJQ12Iw1V8wX3T6Y1swHfdDY)
+![Google Chat message of Athaliah Gonzalez saying "Oil may be repellent to water but from I've heard it attracts men when you cover yourself in it" with 2 📠 reactions including the screenshotter.](https://lh7-us.googleusercontent.com/CCK8uR6dVz5gluENDINy9b5PjdvoJYJpeUPQE9PF15T2pAaNCelMsHtCIMzbpB8KJ-KFdJ57W0iqWTwwm_RuTMz0gAChoYJAlhqGhcu-Ei--Z1e2yrPPQCntFhZssujcJQ12Iw1V8wX3T6Y1swHfdDY)
 
 💀💀💀💀💀💀💀💀💀💀💀💀💀💀💀💀💀💀💀💀💀💀💀💀💀💀💀💀💀💀💀💀💀💀💀
 
 ---
 
-> you actually can’t get a        run: yarn build
-n std after the age of 21
+> you actually can’t get an std after the age of 21
 
 \- tommy sarcastically pretending to be omniscient while talking about getting physicals
 
@@ -382,7 +381,7 @@ Me and a couple of other friends did not seem to think so lol
 
 \- THE scott oberg
 
-![kameko oberg](https://lh7-us.googleusercontent.com/2ghRpg2aPTT4D2i-wiAO995NGjhq09Lzf0Q9JjXoxL2F3kO-Cd4vJWFTRNPV4-wvJoAwaGijRWfrMteRsD8GN-hHlnrCm0GI6yKh00GKP5b7RsQ8T5MDK2Qu0tDWefwJ-J6aEj5TIttyDyetxfRH8WY)
+![kameko oberg (sugar momma in question)](https://lh7-us.googleusercontent.com/2ghRpg2aPTT4D2i-wiAO995NGjhq09Lzf0Q9JjXoxL2F3kO-Cd4vJWFTRNPV4-wvJoAwaGijRWfrMteRsD8GN-hHlnrCm0GI6yKh00GKP5b7RsQ8T5MDK2Qu0tDWefwJ-J6aEj5TIttyDyetxfRH8WY)
 
 ---
 
@@ -412,7 +411,7 @@ there were no sexual implications, this was purely cannibalistic :3
 \- Sir Gabriel Hunter Zguris O'Neil I
 
 ---
-> where are the cuban cimars??? \[sic\]
+> where are the cuban cimars??? \[sic: cigars\]
 
 > yeah I'm off my meds today
 > I think crack would actually help me
@@ -577,7 +576,7 @@ Found this old quote from who knows when:
 
 > Real Gs move in silence. Like lasagna. 
 > 
-> [...]
+> \[...\]
 > 
 > You've never heard that? Really?
 > 
@@ -821,6 +820,23 @@ sarena vs athaliah
 > it's easier to do it on the floor than the table. I've done it a bunch on the floor
 
 \- cooper <!-- eats paper -->
+
+---
+at summer camp, during rec:
+
+> I support calvin!!
+
+\- athaliah
+
+> I only support WHITE MEN 👹
+
+\- anna
+
+---
+
+> You know whay's a good sandwich? Turkey Bacon Avocado. \*gorilla noises/sex grunts\* I'd fuck that sandwich
+
+\- Matt from Subway
 
 ---
 
