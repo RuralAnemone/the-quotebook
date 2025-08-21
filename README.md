@@ -834,7 +834,7 @@ at summer camp, during rec:
 
 ---
 
-> You know whay's a good sandwich? Turkey Bacon Avocado. \*gorilla noises/sex grunts\* I'd fuck that sandwich
+> You know what's a good sandwich? Turkey Bacon Avocado. \*gorilla noises/sex grunts\* I'd fuck that sandwich
 
 \- Matt from Subway
 
