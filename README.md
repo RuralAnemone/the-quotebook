@@ -846,3 +846,6 @@ at summer camp, during rec:
 
 ---
 
+> I'm all frowny face because you haven't turned it your assignments. but it'll only take a day or two, and then I'll be all smiley face!
+
+\- Professor™ Grggg
