@@ -849,3 +849,21 @@ at summer camp, during rec:
 > I'm all frowny face because you haven't turned it your assignments. but it'll only take a day or two, and then I'll be all smiley face!
 
 \- Professor™ Grggg
+
+---
+
+> they didn't know what the bone was because dinosaurs hadn't been invented yet ☝️🤓
+
+\- prof gregg
+
+---
+
+> sooo can I go home now?
+
+\- bek
+
+> I don't care where you go but you should probably go to the gym
+
+\- gregg
+
+
