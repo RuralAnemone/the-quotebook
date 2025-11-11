@@ -38,7 +38,7 @@ later:
 
 ![discord message from user "Cheesy Beard(Totally Liam)" timestamped 06/06/2022 9:02 PM that reads, "I was practicing my speech today and people kept interrupting me by saying 'sir this is a target' and 'sir please put your pants back on' and 'sir please put your pants on and stop throwing eggs at me' \\n People these day smh my head"](https://lh7-us.googleusercontent.com/7UXGewDJ4XeglX_MBYurWCtW5y99CHe517pPYc-c0VThbQNeaZPQsVUcpu38ja8pcRKnuqdrCLkGHFZisHWfS9vjCS0RpzFEEWIJgpf3-uAqehTkazN4jjmixZiVUD4HFQtSxaQyuVzhidZ-wGWoOeI)
 
-\- [Brady Bangasser](mailto:bradybbangasser@gmail.com)
+\- Bradyb Bangasser
 
 ---
 
